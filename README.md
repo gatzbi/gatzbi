@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @gatzbi 
-- 👀 I’m interested in BAP Mindset and Crypto
-- 🌱 I’m currently learning how to Follarme a tu madre
 - 📫 How to reach me: gatzbi@protonmail.com
 
 <!---
